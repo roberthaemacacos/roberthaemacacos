@@ -1,7 +1,7 @@
 
 Boas vindas ao meu perfil <3
 
-![](https://giphy.com/gifs/devxart-animal-macaco-lendo-hGv3KuKkQWGCbhM9rA)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Fmacacos&psig=AOvVaw1K_Bdz00q9-MK8L7WOUgyM&ust=1716935259778000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCNDQm7PwroYDFQAAAAAdAAAAABAZ)
 
 
 
