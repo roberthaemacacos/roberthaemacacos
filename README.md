@@ -1,7 +1,7 @@
 
 ### Boas vindas ao meu perfil <3
 
-![https://i.gifer.com/1FA.gif]
+![] https://i.gifer.com/1FA.gif
 
 Meu nome é Robertha Lima
 
