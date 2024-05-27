@@ -1,7 +1,7 @@
 
 ### Boas vindas ao meu perfil <3
 
-![https://giphy.com/gifs/devxart-animal-macaco-lendo-hGv3KuKkQWGCbhM9rA]
+![(https://i.gifer.com/1FA.gif)]
 
 Meu nome é Robertha Lima
 
