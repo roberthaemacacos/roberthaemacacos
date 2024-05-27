@@ -2,6 +2,7 @@
 ### Boas vindas ao meu perfil <3
 
 ![https://giphy.com/gifs/devxart-animal-macaco-lendo-hGv3KuKkQWGCbhM9rA]
+
 Meu nome é Robertha Lima
 
 Estou estudando na Alura
